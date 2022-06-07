@@ -1,1 +1,1 @@
-# rsschool-cv
+https://Marina-2022.github.io/rsschool-cv/cv
